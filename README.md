@@ -1,4 +1,4 @@
-# <a href="https://l24.im/SJRZr">Giris-Jojobet.com</a>
+# <a href="https://l24.im/Gkaw2x">Giris-Jojobet.com</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
