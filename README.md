@@ -4,8 +4,8 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
-<a href="https://l24.im/SJRZr" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/nLk2ORyP.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://l24.im/SJRZr">
+<a href="https://l24.im/Gkaw2x" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/nLk2ORyP.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://l24.im/Gkaw2x">
     <img src="https://r.resimlink.com/cIsTDQheZb.jpg" />
 </a>
 </a>
